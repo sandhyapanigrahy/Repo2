@@ -1,0 +1,1 @@
+When Frederick Banting’s phone rang one morning in October 1923, it was the call that every scientist must dream of receiving. On the other end of the line, an excited friend asked Banting if he had seen the morning newspapers. When Banting said no, his friend broke the news himself. Banting had just been awarded the Nobel prize for his discovery of insulin. 
